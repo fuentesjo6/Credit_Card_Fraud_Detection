@@ -20,3 +20,5 @@
 
 
 Think Harder!!!
+- SkimSkam
+- Kleptomaniacs - definition an impule control disorder that results in an irresistable urge to steal!!! :smile ß 
